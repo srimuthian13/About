@@ -37,10 +37,13 @@ Beberapa proyek yang pernah saya kerjakan:
 ## Hubungi Saya 
 - 🌐 Github :https://github.com/srimuthian13
 - 📧 Email : srimut0613@gmail.com
+- LinkIdn  : linkedin.com/in/sri-muthia-ningrum-9643a5371
+
+
 
 ---
 
 ## 🔥 Motto
-> *"Belajar pelan-pelan, yang penting konsisten."*
+> *"Life is too short to live with a negative mindset."*
 
 Terima kasih sudah mampir ke profil GitHub saya! 😊
